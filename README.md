@@ -4,7 +4,7 @@ My first repository
 ## Currently Watching: 
 # **Mr. Plankton**
 
-![November 2024 in Netflix]![image](https://github.com/user-attachments/assets/14193906-16b7-4387-a2f7-b869902fbe91)
+![November 2024 in Netflix](https://github.com/user-attachments/assets/14193906-16b7-4387-a2f7-b869902fbe91)
 
 ## Director: 
 ### - *Hong Jong-Chan*
